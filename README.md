@@ -1,0 +1,2 @@
+- 👋 Hi, I’m d.
+- 👀 I’m interested in Python.
