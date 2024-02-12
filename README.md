@@ -1,3 +1,3 @@
 - 👋 Hi, I’m d.
 - 👀 I’m interested in Python.
-- 🙏 My discord is @go31mucfv639kx0vzknlm91cmo8v1e4g.
+- 🙏 My discord is @e4ea25dba324791b9d4988cc5f55ab31.
